@@ -1,6 +1,6 @@
 ## *Seja bem vindo ao meu perfil* 💗🎀👑🌸🚘🌷
 
-🎀 Meu nome é Vanelope 💕🚘🌸🍰💕
+🎀 Meu nome é Vanellope 💕🚘🌸🍰💕
 
 🎀 Estou estudando no Alura 💋
 
